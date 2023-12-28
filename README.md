@@ -1,1 +1,1 @@
-# TECHRISE-CLUB.com
+# TECHRISE-CLUB.github.io
